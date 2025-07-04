@@ -107,7 +107,7 @@ This project is licensed under the MIT License - see the [LICENSE.md](LICENSE.md
 
 ## 📞 Contact
 
-For any inquiries, please reach out to [ndedilan504@gmail.com](mailto:ndedilan504@gmail.com)
+For any inquiries, please reach out to [NGATCHNEL1@GMAIL.COM](mailto:NGATCHNEL1@GMAIL.COM)
 
 ---
 
